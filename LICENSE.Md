@@ -1,0 +1,10 @@
+- 👋 Hi namaku Yosep Ghanny
+- 👀 Aku tertarik dengan Aquascape
+- 🌱 Aku saat ini sekolah di jenjang SMP
+- 💞️ Aku mengajakmu bekerjasama!😄
+- 📫 Kamu bisa menghubungiku dengan mengirim email ke yosephganny@gmail.com
+
+<h1 style> salken
+              <h2 style="color:white"> 
+
+hi
